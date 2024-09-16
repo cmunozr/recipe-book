@@ -21,3 +21,7 @@
 5. Keep adding ladlefuls of stock, stirring and almost massaging the creamy starch out of the rice, allowing each ladleful to be absorbed before adding the next. This will take around 15 minutes. Taste the rice — is it cooked? Carry on adding stock until the rice is soft but with a slight bite. Don’t forget to check the seasoning carefully. If you run out of stock before the rice is cooked, add some boiling water.
 6. Remove the pan from the heat, add 1 knob of butter and the Parmesan, then stir well.
 7. Place a lid on the pan and allow to sit for 2 minutes – this is the most important part of making the perfect risotto, as this is when it becomes outrageously creamy and oozy like it should be. Eat it as soon as possible, while the risotto retains its beautiful texture.
+
+## Author
+
+[Jamie Oliver](https://www.jamieoliver.com/recipes/rice/a-basic-risotto-recipe/)
